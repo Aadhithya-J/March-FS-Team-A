@@ -1,1 +1,1 @@
-I am Optimus Prime.
+Did you forget who I am? I am Optimus Prime.
